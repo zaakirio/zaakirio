@@ -1,5 +1,5 @@
 ## *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚
-☽◯☾ Infosec enthusiast
+☽◯☾ Web3 + Infosec enthusiast
 
 ⚜ Fullstack developer
 
