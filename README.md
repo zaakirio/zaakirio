@@ -1,7 +1,7 @@
 ## *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚
 ☽◯☾ Web3 + Infosec enthusiast
 
-⚜ Fullstack developer
+⚜ currently building file manager in rUsT
 
 ‧₊˚🖇️✩ ₊˚🎧⊹♡ Feel free to reach out - collaboration over competition - together we achieve more
 <!--
