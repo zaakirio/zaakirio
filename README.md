@@ -1,7 +1,7 @@
 ## *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚
 ☽◯☾ Web3 + Infosec enthusiast
 
-⚜ currently building file manager in rUsT
+⚜ currently deep in the weeds with local llm's
 
 ‧₊˚🖇️✩ ₊˚🎧⊹♡ Feel free to reach out - collaboration over competition - together we achieve more
 <!--
